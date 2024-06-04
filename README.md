@@ -1,2 +1,2 @@
 # ProjectManegement
-### NOT he-he-he
+### He-he-he is not avaiable in your country
